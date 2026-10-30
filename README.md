@@ -1,1 +1,1 @@
-https://github.com/Kykyyta/ono-tebe-nado
+https://github.com/Kykyyta/ono-tebe-nado-ad
